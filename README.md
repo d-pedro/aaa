@@ -1,0 +1,1 @@
+### [How do I hide the standard arrows in swiperand make my arrows work?](http://cdetoolbox.com/__media__/js/netsoltrademark.php?d=askto.pro/question/How-do-I-hide-the-standard-arrows-in-swiper-and-make-my-arrows-work)
